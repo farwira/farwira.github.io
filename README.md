@@ -1,1 +1,1 @@
-ini portofolio saya https://farwira.github.io/
+this is my portfolio https://farwira.github.io/
